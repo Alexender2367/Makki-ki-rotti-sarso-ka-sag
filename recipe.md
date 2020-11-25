@@ -1,0 +1,2 @@
+Firstly, chop the Saag and spinach then wash it at least 3-4 times for removing all impurities into it. Take a pressure cooker put washed saag and spinach into the cooker and add diced ginger, green chili, and salt as per the quantity of saag and wait for 3 whistles after that lower the flame. When saag is cooked and cool it down then add makke ka atta (maize flour). Blend it with a blender and make a smooth texture. After this make a tadka and put saag into it. Your tasty and healthy Sarson ka Saag is ready to serve with Makki ki Roti.
+
